@@ -1,6 +1,6 @@
-                                                                        Geoffrey Badie
+####                                                                 Geoffrey Badie
 
-Parcours professionnel:
+**Parcours professionnel:**
           
 - Suite à l'obtention de mon baccalauréat ES en 2015, j'ai fait deux années d'études supérieures de langues étrangères en fac. Une année en LEA et une année en licence bilangue.
 - Aprés l'arrêt de mes études en 2017, j'ai effectué plusieurs expériences professionnelles temporaires de classification et d'archivage grâce à un suivi par un service d'aide .
