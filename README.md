@@ -1,4 +1,4 @@
-####                                                                 Geoffrey Badie
+<h3 align="center">Geoffrey Badie</h3>
 
 **Parcours professionnel:**
           
