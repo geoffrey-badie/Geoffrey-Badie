@@ -10,6 +10,6 @@
 - Ayant commencé par de la classification physique avec des oeuvres littéraires au CCR du Mucem et des dossiers d'employés d'hôpital de la MDPH.
 - Celles-ci ont progressivement menées à l'utilisation de supports informatiques pour effectuer ces taches.
 - Ainsi, cela a poussé à un souhait d'en apprendre plus sur les compétences informatiques et les métiers qui en débouchent.
-- J'ai effectué et complété une formation de perfectionnement bureautique en 2022.
+- J'ai effectué et complété une formation de perfectionnement bureautique en 2022 concernant les outils bureautiques (Word, Excel, Powerpoint, Outlook).
 
 - Mon projet actuel est de suivre les apprentissages de la Plateforme et les expériences liées pour consolider cet intérêt et cette motivation par les découvertes qui en sont engendrées.
